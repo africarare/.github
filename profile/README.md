@@ -2,4 +2,4 @@
 
 We are building an African Metaverse that will help uncover Africa’s untapped talent, creativity and innovation and connect Africa to the global digital economy.
 
-![ezgif-5-b2047366e9](https://user-images.githubusercontent.com/7098556/186790863-1c82e0eb-c49e-4d4a-8879-347cc5d2c9af.gif)
+![ezgif-5-268765fbc6](https://user-images.githubusercontent.com/7098556/186791569-e8991fa7-bfea-41a5-8bf6-1f1cb34bf8ba.gif)
